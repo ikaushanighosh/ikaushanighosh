@@ -10,6 +10,9 @@ Here are some ideas to get you started:
 - ⚡ Fun fact: **I think I can talk for hours!!!**
 -->
 
+🌱 I’m currently learning B.SC Information Technology with a specialization in Cloud Computing and Information Security in Techno India University, Kolkata.
+😄 Pronouns: She/Her
+📫 How to reach me: **ghoshkaushani36@gmail.com** 
+⚡ Fun fact: **I think I can talk for hours!!!**
+ 
 
-Connect with me
-https://www.linkedin.com/in/kaushani-ghosh-107477204/
